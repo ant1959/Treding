@@ -1,0 +1,2 @@
+# Treding
+Fare treding giornaliero 
